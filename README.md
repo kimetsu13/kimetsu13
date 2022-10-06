@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kimetsu13
 - 👀 I’m interested in GAMING , TRAVELING.
-- 🌱 I’m currently learning BCA III
+- 🌱 I’m currently learning  BLOCKCHAIN
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me patelkusha149@gmail.com
 
